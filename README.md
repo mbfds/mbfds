@@ -9,3 +9,13 @@ Here is some information from me:
 - 📫 How to get to me: Today the easiest way is by email or whatsapp!
 - ⚡ Curiosity: I have a catchphrase for life, "You can count on me!"
 Whatsapp: +55 14 9 91 11 22 71
+<br>
+
+
+Would you like to see my work working !?<br>
+Click here<br>
+
+Log in as admin:<br>
+admin / admin<br>
+Login with client:<br>
+customer / customer<br>
